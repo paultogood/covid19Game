@@ -3,7 +3,7 @@ This board game is available as a hard copy game from paul@toogoodphotography.co
 
 Design and artwork are copyrighted/registered in Canada.
 
-To obtain a hard copy version of the game drop an emailito paul@toogoodphotography.com with subject line "Covid-19 The Board Game".
+To obtain a hard copy version of the game drop an email to paul@toogoodphotography.com with subject line "Covid-19 The Board Game".
 
 Comming soon an on-line version of the game for 2 to 4 live players.
 
